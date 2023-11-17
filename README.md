@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **bhumikanama2005@gmail.com**
 
-- ⚡ Fun fact **I love horror movie..**
+- ⚡ Fun fact **I love horror movies..**
 
 <h3 align="center">Connect with me:</h3>
 <p align="center">
